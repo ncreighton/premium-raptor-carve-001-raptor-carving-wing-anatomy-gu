@@ -1,0 +1,2 @@
+# premium-raptor-carve-001-raptor-carving-wing-anatomy-gu
+Stop guessing the curve of a primary feather or the sweep of an alula—your raptor carvings deserve wings that actually look like they could fly.  This Notion template turns wing anatomy into a repeatable carving process. It organizes every muscle group, bone, and feather tract into a visual reference system that you can customize for each project.
